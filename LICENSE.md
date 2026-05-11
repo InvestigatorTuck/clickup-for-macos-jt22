@@ -1,4 +1,4 @@
-
+Get the ultimate ClickUp for macOS workflow with smart Workflow for ClickUp for macOS - export to PDF and collaboration. Featuring export to PDF and collaboration, it's the best
 
 
 
